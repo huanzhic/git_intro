@@ -1,1 +1,2 @@
 Zhicheng Huang
+huanzhic@oregonstate.edu
